@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @786haider
+- 👀 I’m interested in Enginiering and discover new things arround the world and in the technology.
+- 🌱 I’m currently learning  AGENTIC AI .
+- 💞️ I’m looking to collaborate on my project with peoples who are working the same laggacy as me.
+- 📫 How to reach me +92-3101318508 contact number.
