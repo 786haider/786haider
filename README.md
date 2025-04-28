@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @786haider
+- 👋 Hi, I’m Haider Hussain .
+- 😎 I am full stack web developer. And i am also work in python for web development.
 - 👀 I’m interested in Enginiering and discover new things arround the world and in the technology.
 - 🌱 I’m currently learning  AGENTIC AI .
 - 💞️ I’m looking to collaborate on my project with peoples who are working the same laggacy as me.
